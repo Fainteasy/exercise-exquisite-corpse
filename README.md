@@ -24,3 +24,7 @@ Existing branches:
 
 Perdu en mer, il ne savait plus quoi faire et resta accroché à une planche en attendant les secours. Un [yacht](https://hospitality-on.com/sites/default/files/2022-09/four%20seasons%20yachts%20%281%29.jpg) finit par arrivé à son niveau et réussit à le repecher à bout de force. C'était sa chance de pouvoir réaliser son premier **meurtre** :knife: mais il ne pouvait même plus bouger le petit doigt. Il était toujours aussi inutile.
 
+Il mit quelques heures pour recupérer des forces. A present,  
+il reflechit à un autre **plan**, ***une autre victime*** a tenter d'assassiner. 
+Il se balade sur le yacht et trouve un marteau. il entre dans la cuisine et se dirige vers **le cuisinier** avec un regard froid... 
+
