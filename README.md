@@ -10,6 +10,10 @@ Il était une fois un **homme** du moins *le pensait-on* qui rêvait d'être com
 ![yoda peur](https://media.giphy.com/media/3o7abrH8o4HMgEAV9e/giphy.gif)
 
 Par conséquent, malgré toutes ses ***incroyables tentatives***, il ne parvint jamais à tuer <sub>personne</sub>.  
+
+
+
+
 Mais il ne recula pas devant les difficultés, et malgré ses phobies, il s'entraina tel **Roronoa Zoro** sur *Kuraigana*.
 Apres des *annees* d'entrainement, il parvint enfin a maitriser ses peurs et s'appreta a realiser son rêve, devenir un Serial Killer. 
 Manque de bol, son bateau coula sur la route de la civilisation, car il avait également peur de l'eau, mais ça, il n'y avait pas pensé ... 
@@ -28,3 +32,4 @@ Il mit quelques heures pour recupérer des forces. A present,
 il reflechit à un autre **plan**, ***une autre victime*** a tenter d'assassiner. 
 Il se balade sur le yacht et trouve un marteau. il entre dans la cuisine et se dirige vers **le cuisinier** avec un regard froid... 
 
+Désolé je ne suis pas inspirer pour poursuivre l'histoire.
