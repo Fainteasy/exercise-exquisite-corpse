@@ -15,7 +15,7 @@ Par conséquent, malgré toutes ses ***incroyables tentatives***, il ne parvint 
 
 
 Mais il ne recula pas devant les difficultés, et malgré ses phobies, il s'entraina tel **Roronoa Zoro** sur *Kuraigana*.
-Apres des *annees* d'entrainement, il parvint enfin a maitriser ses peurs et s'appreta a realiser son rêve, devenir un Serial Killer. 
+Apres des *années* d'entrainement, il parvint enfin à maitriser ses peurs et s'apprêta à réaliser son rêve, devenir un Serial Killer. 
 Manque de bol, son bateau coula sur la route de la civilisation, car il avait également peur de l'eau, mais ça, il n'y avait pas pensé ... 
 
  ![yoda peur](https://www.lepoint.fr/images/2012/04/13/titanic-naufrage-551977-jpg_379159_1250x625.JPG)
@@ -26,10 +26,10 @@ Existing branches:
 - development
 - Ahmed
 
-Perdu en mer, il ne savait plus quoi faire et resta accroché à une planche en attendant les secours. Un [yacht](https://hospitality-on.com/sites/default/files/2022-09/four%20seasons%20yachts%20%281%29.jpg) finit par arrivé à son niveau et réussit à le repecher à bout de force. C'était sa chance de pouvoir réaliser son premier **meurtre** :knife: mais il ne pouvait même plus bouger le petit doigt. Il était toujours aussi inutile.
+Perdu en mer, il ne savait plus quoi faire et resta accroché à une planche en attendant les secours. Un [yacht](https://hospitality-on.com/sites/default/files/2022-09/four%20seasons%20yachts%20%281%29.jpg) finit par arrivé à son niveau et réussit à le repêcher à bout de force. C'était sa chance de pouvoir réaliser son premier **meurtre** :knife: mais il ne pouvait même plus bouger le petit doigt. Il était toujours aussi inutile.
 
-Il mit quelques heures pour recupérer des forces. A present,  
-il reflechit à un autre **plan**, ***une autre victime*** a tenter d'assassiner. 
+Il mit quelques heures pour recupérer des forces. A présent,  
+il réflechit à un autre **plan**, ***une autre victime*** à tenter d'assassiner. 
 Il se balade sur le yacht et trouve un marteau. il entre dans la cuisine et se dirige vers **le cuisinier** avec un regard froid... 
 
-Désolé je ne suis pas inspirer pour poursuivre l'histoire.
+Désolé je ne suis pasé pour poursuivre l'histoire.
