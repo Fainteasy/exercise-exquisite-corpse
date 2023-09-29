@@ -10,3 +10,8 @@ Il était une fois un **homme** du moins *le pensait-on* qui rêvait d'être com
 ![yoda peur](https://media.giphy.com/media/3o7abrH8o4HMgEAV9e/giphy.gif)
 
 Par conséquent, malgré toutes ses ***incroyables tentatives***, il ne parvint jamais à tuer <sub>personne</sub>.
+
+Mais cette soirée fut une **soirée** bien différente. il prenna :
+- son couteau a beurre 
+- sa hache en bois
+et se diriga direction le quartier des plaisirs.
